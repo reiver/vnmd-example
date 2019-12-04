@@ -26,7 +26,7 @@ Clark:
 > Seriously!
 
 Cyrus:
-> That doesn't sound like you are allergy.
+> That doesn't sound like you are allergic.
 >
 > It sounds like you gained super powers!!!
 
